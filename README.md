@@ -1,1 +1,3 @@
-# Shrike_by_Supr14
+# Shrike by Supr14
+# DISCLAIMER
+This was not made by me, im just publishing it to this webstie!
